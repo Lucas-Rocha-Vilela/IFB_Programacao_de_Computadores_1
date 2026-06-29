@@ -3,7 +3,7 @@
 
 ## Período
 
-2º Semestre - 01/2022
+2º Semestre - 02/2022
 
 ---
 
